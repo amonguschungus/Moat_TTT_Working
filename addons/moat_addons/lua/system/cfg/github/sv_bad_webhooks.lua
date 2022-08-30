@@ -1,0 +1,19 @@
+-- until we fix discord webhook
+-- u can use this if u multi commit
+-- 6a1ff677c4588a5d2fd8303d4b3547491b0e7921
+-- b8969f0859ad9bf567ddd970d68073bfb2f4cbf8
+-- imagine labeling your vip rank "infinity" and requiring your members to pay monthly for it https://crescent.gg/store/
+-- out of all the planets in the universe to make fun of them for, you chose the smallest decided-not a planet http://meep.chat/
+-- https://pluto.chat/
+-- https://meep.chat/
+-- who
+-- Added 13 songs clipped by Sparked and JJPieroni to the post round playlist
+-- Added a 2nd tier talent to discover
+-- Lower the Range and Accuracy attributes on Dual Glocks
+-- Lower the Range and Accuracy attributes on Dual Glocks
+-- Lower the Range and Accuracy attributes on Dual Glocks
+-- Lower the Range and Accuracy attributes on Dual Glocks
+-- Lower the Range and Accuracy attributes on Dual Glocks
+-- Lower the Range and Accuracy attributes on Dual Glocks
+-- Aqua Palm Crate is now available
+-- Update inventory categories
